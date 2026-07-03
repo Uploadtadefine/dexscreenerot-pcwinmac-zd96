@@ -1,4 +1,4 @@
-# 
+# Open Source dexscreener sniper bot plugins for Mac OS | Top dexscreener sniper bot plugins for PC Windows. Featuring custom dashboards and margin management — optimized for maximum performance on every platform.
 
 
 
